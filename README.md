@@ -8,19 +8,30 @@ Hi!, im k0z , k0zzie or kin names !
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a5663ff9-fbf9-433b-9258-c843bc03a103" /> **Can you int with me ?** <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a5663ff9-fbf9-433b-9258-c843bc03a103" />
 
 -Friendly
+
 -Non-problematic
+
 -lgbtq+ supporter (no need to, just dont be homophobic)
+
 -Also likes drawing!
+
 -c+h
+
 -asking to be moots
+
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/03c02601-2f4d-4aa7-a176-c5de1c90a87d" /> **You _can't_ int with me!** <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/03c02601-2f4d-4aa7-a176-c5de1c90a87d" />
 
 -Mean (if you're struggling, i accept you).
+
 -Transphobic + homophobic.
+
 -Problematic.
+
 -R#pe/SA/SH jokes.
+
 -non-believing my cousin's death :/.
+
 
 I might act serious some times, plus, im being more mature these days, u can still joke around me :]
 
