@@ -55,7 +55,7 @@ if you also kin as any of these characters **pls** _iwec_ (unless friend)
 - Cis gender male
 - Hypersexual
 - demi-Sexual/aromantic
-_**taken**_
+_**sighsssss   :-(**_
 
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/195f11f4-d9a1-4070-8f6c-b67fe7c9335e" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/46a2643b-8205-42d0-8d83-aa50b52c4ccd" />
 
